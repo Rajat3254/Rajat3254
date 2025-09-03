@@ -1,4 +1,4 @@
-![Banner](./banner.png)
+![Banner](./1693030803705.jpg)
 
 # 👋 Hi, I'm Rajat Singh  
 
